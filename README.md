@@ -1,0 +1,2 @@
+# czlowiek---kompter
+czlowiek komputer
